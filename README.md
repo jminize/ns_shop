@@ -1,2 +1,2 @@
 # ระบบออกแบบลายปลอกหมอน
-[![nam.png](https://i.postimg.cc/P5G7mD5G/nam.png)](https://postimg.cc/GHQzRHDz)
+[![nam.png](https://i.postimg.cc/L6BHgmmV/nam.png)](https://postimg.cc/xc8rWDJk)
